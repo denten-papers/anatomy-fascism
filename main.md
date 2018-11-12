@@ -43,9 +43,10 @@ Some white ladies. [Cut.] Asian lady. Man with a trimmed beard. Traffic.
 Cafe. Black man in athletic wear. Lacoste. Noriem. Coca-Cola and scooters.
 Clean streets. Cars. Empty streets. Joggers. Bicyclists. Taxis. High pitched
 shrieks. Canal. [Cut.] Architecture. Tour bus. Jogger. Traffic and scooters.
-19th century architecture. [Cut.] Push scooter. Corner traffic. Jogger.
-Pedestrians. Asians. Students. Angel. Delivery. Les Fruits de la Terre. Bio
-legumes. White man in a purple jacket. Camateu. Muslim call to prayer. Beeps.
+19th European century architecture. [Cut.] Push scooter. Corner traffic.
+Jogger. Pedestrians. Asians. Students. Angel. Delivery. Les Fruits de la
+Terre. Bio legumes. White man in a purple jacket. Camateu. Muslim call to
+prayer. Beeps.
 
 Advertisement: There are 20,000 Robocalls today. Because of my job
 responsibility I have to pick up my phone... It's not only not work related
