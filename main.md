@@ -43,7 +43,7 @@ Some white ladies. [Cut.] Asian lady. Man with a trimmed beard. Traffic.
 Cafe. Black man in athletic wear. Lacoste. Noriem. Coca-Cola and scooters.
 Clean streets. Cars. Empty streets. Joggers. Bicyclists. Taxis. High pitched
 shrieks. Canal. [Cut.] Architecture. Tour bus. Jogger. Traffic and scooters.
-19th European century architecture. [Cut.] Push scooter. Corner traffic.
+19th century European architecture. [Cut.] Push scooter. Corner traffic.
 Jogger. Pedestrians. Asians. Students. Angel. Delivery. Les Fruits de la
 Terre. Bio legumes. White man in a purple jacket. Camateu. Muslim call to
 prayer. Beeps.
