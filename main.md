@@ -4,6 +4,7 @@ Title: The Streets of ***** Today
 User: **** Atlas
 1,467,544 views | 58,140 Subscribers | 8.4k I like this | 1.6k I dislike this
 16min 48sec
+<https://github.com/denten-papers/anatomy-fascism/blob/master/paris.3gp>
 
 Advertisement: Today could spark tomorrow's... "architect!"... "biologist!"...
 "engineer"...  "rocket scientist." Design by doing, make by creating, and play
